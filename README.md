@@ -1,5 +1,5 @@
-- 👋 Hello there, I’m @rocket365
+- 👋 Hello there, I’m Rocket.
 - 👀 I’m interested in gaming primarily and fun software solutions.
 - 🌱 I’m currently re-learning everything there is about software and development. 
-- 💞️ I’m looking to collaborate on... something. 
+- 💞️ I've never worked together in a project so it would be a new experience to me.  
 - 📫 You can reach me on here or on Discord at #Rocket6971
